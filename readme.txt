@@ -1,0 +1,1 @@
+Ini adalah file yang telah dibuka. Terima kasih karena telah membuka saya. Sampai jumpa. Mempertanggungjawabkannya
